@@ -35,10 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE MOSTE
-pleasaunte Arte of the Interpretation
-of Dreames, whereunto
-is annexed sundry Problemes wi
+
 1. To the right worshipful
 Mayster George Keabel Esquier,
 Thomas Hil wisheth
